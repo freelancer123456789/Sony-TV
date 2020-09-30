@@ -1,2 +1,2 @@
 # Sony-TV
-this Coming Sone Websote 
+this Coming Sony Website 
